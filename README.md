@@ -7,5 +7,3 @@
  
 # 28/03/2023 
 # no more updates pls find self for any errors 
-
-# Even single dollar can help me donate me on paypal https://www.paypal.me/imspartanshelby
